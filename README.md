@@ -20,6 +20,6 @@ _____
 
 💠 **[@sprinklesex](https://github.com/sprinklesex)** — as Pony Town's *BUCK*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@Aspenolia](https://github.com/Aspenolia)** — as Pony Town's *AZURE*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
