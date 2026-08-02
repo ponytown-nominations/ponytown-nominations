@@ -18,7 +18,7 @@ _____
 
 💠 **[@puppytreat](https://github.com/puppytreat)** — as Pony Town's *SLASHER*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@sprinklesex](https://github.com/sprinklesex)** — as Pony Town's *BUCK*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
