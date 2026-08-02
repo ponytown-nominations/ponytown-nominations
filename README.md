@@ -16,7 +16,7 @@ _____
 
 💠 **[@Gamblersi](https://github.com/Gamblersi)** — as Pony Town's *CHANCE*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@puppytreat](https://github.com/puppytreat)** — as Pony Town's *SLASHER*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
