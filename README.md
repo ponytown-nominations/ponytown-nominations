@@ -8,9 +8,9 @@ _updates frequently_
 _____
 💠 **[@UICTIM](https://github.com/Uictim)** — as Pony Town's *TDL*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[SONNELLINOENTHUSIAST](https://github.com/SONNELLINOENTHUSIAST)** — as Pony Town's *MAFIOSO*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@itrap-2245](https://github.com/itrap-2245)** — as Pony Town's *ITRAPPED*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
