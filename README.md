@@ -1,6 +1,6 @@
 💠 NOMINATIONS!!
 
-💠 **[@username1](https://github.com/username1)** — MAIN GITHUB
+💠 **[@Matt-1337]([https://github.com/username1](https://github.com/Matt-1337))** — MAIN GITHUB
 
 💠 **[@username2](https://github.com/username2)** — Pony Town's *character*
 
