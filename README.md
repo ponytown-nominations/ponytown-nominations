@@ -22,4 +22,14 @@ _____
 
 💠 **[@Aspenolia](https://github.com/Aspenolia)** — as Pony Town's *AZURE*
 
+💠 **[@crypticb1tch](https://github.com/crypticb1tch)** — as Pony Town's *GAVIN*
+
+💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+
+💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+
+💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+
+💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
