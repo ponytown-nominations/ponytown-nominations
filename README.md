@@ -26,9 +26,9 @@ _____
 
 💠 **[@Blame-John](https://github.com/Blame-John)** — as Pony Town's *SHEDLETSKY*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@Ilove-him](https://github.com/Ilove-him)** — as Pony Town's *WIFIES*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@DEADP0ET](https://github.com/DEADP0ET)** — as Pony Town's *DEAN WINCHESTER*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
