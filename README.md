@@ -12,7 +12,7 @@ _____
 
 💠 **[@itrap-2245](https://github.com/itrap-2245)** — as Pony Town's *ITRAPPED*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@killwaree](https://github.com/killwaree)** — as Pony Town's *DOCTOR STRANGE*
 
 💠 **[@Gamblersi](https://github.com/Gamblersi)** — as Pony Town's *CHANCE*
 
