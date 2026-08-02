@@ -24,7 +24,7 @@ _____
 
 💠 **[@crypticb1tch](https://github.com/crypticb1tch)** — as Pony Town's *GAVIN*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@Blame-John](https://github.com/Blame-John)** — as Pony Town's *SHEDLETSKY*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
