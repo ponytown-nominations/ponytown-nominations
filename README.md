@@ -46,7 +46,7 @@ _____
 
 💠 **[@flowersan02](https://github.com/flowersan02)** — as Pony Town's *ELLIOT*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@puphacker](https://github.com/puphacker)** — as Pony Town's *007N7*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
