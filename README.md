@@ -48,8 +48,8 @@ _____
 
 💠 **[@puphacker](https://github.com/puphacker)** — as Pony Town's *007N7*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@andreslopper](https://github.com/andreslopper)** — as Pony Town's *KATSANE TETO*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@lostcxuse](https://github.com/lostcxuse)** — as Pony Town's *NEZOSHOKI*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
