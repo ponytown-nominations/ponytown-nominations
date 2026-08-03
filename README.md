@@ -36,7 +36,7 @@ _____
 
 💠 **[@OlgaSinxer](https://github.com/OlgaSinxer)** — as Pony Town's *BEATZZPURMINOTE*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@R0tten2thec0re](https://github.com/R0tten2thec0re)** — as Pony Town's *IVAN*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
