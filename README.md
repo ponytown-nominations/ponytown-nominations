@@ -1,5 +1,6 @@
 # 💠 *WE WANT YOU TO NOMINATE TODAY!* 💠
 > again do not nominate someone who is **_problematic_**
+> if you wanna be removed send me a whisper on pony town or head to my main github which is below and ask on that ata!
 
 💠 **[@Matt-1337](https://github.com/Matt-1337)** — MAIN GITHUB
 <br>
