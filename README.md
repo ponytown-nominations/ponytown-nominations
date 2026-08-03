@@ -104,9 +104,9 @@ _____
 
 💠 **[@oncology-angel](https://github.com/oncology-angel)** — as Pony Town's *ALEXANDER HAMILTON*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@lovingl3tters](https://github.com/lovingl3tters)** — as Pony Town's *CAPOREGIME*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@greatzapfish](https://github.com/greatzapfish)** — as Pony Town's *BUILDERMAN*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
