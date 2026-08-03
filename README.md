@@ -128,7 +128,7 @@ _____
 
 💠 **[@undyingregret](https://github.com/undyingregret)** — as Pony Town's *AVERYTHEMAYO*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@develesto](https://github.com/develesto)** — as Pony Town's *DEVESTO*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
