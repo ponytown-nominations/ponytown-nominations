@@ -54,7 +54,7 @@ _____
 
 💠 **[@VArtfultrust](https://github.com/VArtfultrust)** — as Pony Town's *PARROTX2*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@brighthearted](https://github.com/brighthearted)** — as Pony Town's *BRIGHTHEART*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
