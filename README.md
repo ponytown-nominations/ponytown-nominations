@@ -115,7 +115,7 @@ _____
 
 💠 **[@StaticAngels](https://github.com/StaticAngels)** — as Pony Town's *1X1X1X1*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@spokeisheres](https://github.com/spokeisheres)** — as Pony Town's *SPOKE*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
