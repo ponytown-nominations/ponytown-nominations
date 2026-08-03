@@ -94,7 +94,7 @@ _____
 
 💠 **[@orchestrafuI](https://github.com/orchestrafuI)** — as Pony Town's *ARTFUL*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@givemeonelastdance](https://github.com/givemeonelastdance)** — as Pony Town's *EDDIE BROCK*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
