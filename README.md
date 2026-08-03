@@ -123,7 +123,7 @@ _____
 
 💠 **[@TheHacker7n7](https://github.com/TheHacker7n7)** — as Pony Town's *THATMOB*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@sea-shantyyy](https://github.com/sea-shantyyy)** — as Pony Town's *TELAMON*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
