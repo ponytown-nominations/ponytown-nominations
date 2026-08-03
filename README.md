@@ -40,7 +40,7 @@ _____
 
 💠 **[@Nadd-nadd](https://github.com/Nadd-nadd)** — as Pony Town's *KATSUKI BAKUGO*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@kniferrific](https://github.com/kniferrific)** — as Pony Town's *CRAIG TUCKER*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
