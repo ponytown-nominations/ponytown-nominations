@@ -1,6 +1,6 @@
 # 💠 *WE WANT YOU TO NOMINATE TODAY!* 💠
-> again do not nominate someone who is **_problematic._**
-> if you wanna be removed send me a whisper on pony town or head to my main github which is below and ask on that ata!
+> Again, do not nominate someone who is **_problematic._**
+> If you wanna be removed, send me a whisper on Pony Town or head to my main github, which is below, and ask on that ata!
 
 💠 **[@Matt-1337](https://github.com/Matt-1337)** — MAIN GITHUB
 <br>
@@ -126,7 +126,7 @@ _____
 
 💠 **[@sea-shantyyy](https://github.com/sea-shantyyy)** — as Pony Town's *TELAMON*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@undyingregret](https://github.com/undyingregret)** — as Pony Town's *AVERYTHEMAYO*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
