@@ -34,7 +34,7 @@ _____
 
 💠 **[@Canto8](https://github.com/Canto8)** — as Pony Town's *YESOD*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@OlgaSinxer](https://github.com/OlgaSinxer)** — as Pony Town's *BEATZZPURMINOTE*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
