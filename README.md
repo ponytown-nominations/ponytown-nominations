@@ -117,7 +117,7 @@ _____
 
 💠 **[@spokeisheres](https://github.com/spokeisheres)** — as Pony Town's *SPOKE*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@fishyz-cake](https://github.com/fishyz-cake)** — as Pony Town's *MAHITO*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
