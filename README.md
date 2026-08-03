@@ -38,7 +38,7 @@ _____
 
 💠 **[@R0tten2thec0re](https://github.com/R0tten2thec0re)** — as Pony Town's *IVAN*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@Nadd-nadd](https://github.com/Nadd-nadd)** — as Pony Town's *KATSUKI BAKUGO*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
