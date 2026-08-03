@@ -102,7 +102,7 @@ _____
 
 💠 **[@kiwiconicc](https://github.com/kiwiconicc)** — as Pony Town's *SAIKI KUSUO*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@oncology-angel](https://github.com/oncology-angel)** — as Pony Town's *ALEXANDER HAMILTON*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
