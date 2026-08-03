@@ -119,9 +119,9 @@ _____
 
 💠 **[@fishyz-cake](https://github.com/fishyz-cake)** — as Pony Town's *MAHITO*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@thebasillica](https://github.com/thebasillica)** — as Pony Town's *DEIMOS*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@TheHacker7n7](https://github.com/TheHacker7n7)** — as Pony Town's *THATMOB*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
