@@ -88,7 +88,7 @@ _____
 
 💠 **[@bluuer](https://github.com/bluuer)** — as Pony Town's *BLUUDUD*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@planetlordd](https://github.com/planetlordd)** — as Pony Town's *PLANETLORD*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
