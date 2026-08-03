@@ -52,4 +52,4 @@ _____
 
 💠 **[@lostcxuse](https://github.com/lostcxuse)** — as Pony Town's *NEZOSHOKI*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@VArtfultrust](https://github.com/VArtfultrust)** — as Pony Town's *PARROTX2*
