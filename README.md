@@ -84,9 +84,9 @@ _____
 
 💠 **[@BIOLUMINESCENTY](https://github.com/BIOLUMINESCENTY)** — as Pony Town's *BIOLUMINESCENTY*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@Nullified-Conception](https://github.com/Nullified-Conception)** — as Pony Town's *BANANA PEEL*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@bluuer](https://github.com/bluuer)** — as Pony Town's *BLUUDUD*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
