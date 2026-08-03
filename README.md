@@ -100,7 +100,7 @@ _____
 
 💠 **[@tychobrahed](https://github.com/tychobrahed)** — as Pony Town's *TYCHO*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@kiwiconicc](https://github.com/kiwiconicc)** — as Pony Town's *SAIKI KUSUO*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
