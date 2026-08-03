@@ -108,11 +108,11 @@ _____
 
 💠 **[@greatzapfish](https://github.com/greatzapfish)** — as Pony Town's *BUILDERMAN*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@MrNovalite](https://github.com/MrNovalite)** — as Pony Town's *ASTRO NOVALITE*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@mydigitalescape](https://github.com/mydigitalescape)** — as Pony Town's *ROBERT CHASE*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@StaticAngels](https://github.com/StaticAngels)** — as Pony Town's *1X1X1X1*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
