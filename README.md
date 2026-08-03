@@ -42,7 +42,7 @@ _____
 
 💠 **[@kniferrific](https://github.com/kniferrific)** — as Pony Town's *CRAIG TUCKER*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@pathogen-interface](https://github.com/pathogen-interface)** — as Pony Town's *ROCKET*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
