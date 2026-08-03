@@ -6,6 +6,7 @@
 <br>
 <br>
 _updates frequently_
+> will reply on ata if a character is already on taken
 _____
 💠 **[@UICTIM](https://github.com/Uictim)** — as Pony Town's *TDL*
 
