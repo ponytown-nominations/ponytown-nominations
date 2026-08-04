@@ -127,7 +127,7 @@ _____
 
 💠 **[@sea-shantyyy](https://github.com/sea-shantyyy)** — as Pony Town's *TELAMON*
 
-💠 **[@undyingregret](https://github.com/undyingregret)** — as Pony Town's *AVERYTHEMAYO*
+💠 **[@undyingregret](https://github.com/undyingregret)** — as Pony Town's *PEST*
 
 💠 **[@develesto](https://github.com/develesto)** — as Pony Town's *DEVESTO*
 
