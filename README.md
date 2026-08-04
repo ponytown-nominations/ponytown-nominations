@@ -137,7 +137,7 @@ _____
 
 💠 **[@VIL-ILY](https://github.com/VIL-ILY)** — as Pony Town's *ROOK HUNT*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@realdustsans](https://github.com/realdustsans)** — as Pony Town's *DUST SANS*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
