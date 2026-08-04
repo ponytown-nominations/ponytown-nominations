@@ -168,3 +168,5 @@ _____
 💠 **[@coypisopilled](https://github.com/coypisopilled)** — as Pony Town's *COY PISO*
 
 💠 **[@chxerryval](https://github.com/chxerryval)** — as Pony Town's *JANE DOE*
+
+💠 **[@tomatosu](https://github.com/tomatosu)** — as Pony Town's *SASUKE UCHIHA*
