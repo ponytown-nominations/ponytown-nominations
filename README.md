@@ -135,7 +135,7 @@ _____
 
 💠 **[@whamaniac](https://github.com/whamaniac)** — as Pony Town's *SURVIVOR/ANTHONY*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@VIL-ILY](https://github.com/VIL-ILY)** — as Pony Town's *ROOK HUNT*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
