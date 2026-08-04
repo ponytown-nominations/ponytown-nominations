@@ -145,7 +145,7 @@ _____
 
 💠 **[@glorypizza](https://github.com/glorypizza)** — as Pony Town's *PIZZA GUY*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@vegazzombie](https://github.com/vegazzombie)** — as Pony Town's *LEON SCOTT KENNEDY*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
