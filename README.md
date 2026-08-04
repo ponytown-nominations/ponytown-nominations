@@ -6,7 +6,7 @@
 <br>
 <br>
 _updates frequently_
-> Will reply on ata if a character is already taken.
+> Will reply on ata if a character is already taken or if you want to change characters.
 > Go check the strawpage to see if a character you wanna nominate someone or yourself as is taken!
 _____
 💠 **[@UICTIM](https://github.com/Uictim)** — as Pony Town's *TDL*
