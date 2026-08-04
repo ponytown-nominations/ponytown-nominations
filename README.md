@@ -130,7 +130,7 @@ _____
 
 💠 **[@develesto](https://github.com/develesto)** — as Pony Town's *DEVESTO*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@electrifypink](https://github.com/electrifypink)** — as Pony Town's *PURSUER*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
