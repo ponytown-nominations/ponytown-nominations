@@ -133,7 +133,7 @@ _____
 
 💠 **[@electrifypink](https://github.com/electrifypink)** — as Pony Town's *PURSUER*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@whamaniac](https://github.com/whamaniac)** — as Pony Town's *SURVIVOR/ANTHONY*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
