@@ -149,15 +149,15 @@ _____
 
 💠 **[@Deivydoestutorialz33](https://github.com/Deivydoestutorialz33)** — as Pony Town's *SIXTY4GAMER*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@pupfies](https://github.com/pupfies)** — as Pony Town's *DIRECTORFIES*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@seraphlazer](https://github.com/seraphlazer)** — as Pony Town's *HYPERLASER*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@pIanetwithnomoon](https://github.com/pIanetwithnomoon)** — as Pony Town's *ULRICH*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@suguruberry](https://github.com/suguruberry)** — as Pony Town's *SPIDERMAN*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@xathetic](https://github.com/xathetic)** — as Pony Town's *JOHN "SOAP" MACTAVISH*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
