@@ -161,4 +161,6 @@ _____
 
 💠 **[@bunchoffriends](https://github.com/bunchoffriends)** — as Pony Town's *ANTHONY PO*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@BEASTGUEST](https://github.com/BEASTGUEST)** — as Pony Town's *JOHN DOE*
+
+💠 **[@Dollsection](https://github.com/Dollsection)** — as Pony Town's *VEERONICA*
