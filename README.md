@@ -139,9 +139,9 @@ _____
 
 💠 **[@realdustsans](https://github.com/realdustsans)** — as Pony Town's *DUST SANS*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@Heart0fGold](https://github.com/Heart0fGold)** — as Pony Town's *KARL*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@GHOSTBUSTERS-SFX](https://github.com/GHOSTBUSTERS-SFX)** — as Pony Town's *SCARED FRENCH SOLDIER*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
