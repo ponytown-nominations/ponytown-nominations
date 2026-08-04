@@ -143,7 +143,7 @@ _____
 
 💠 **[@GHOSTBUSTERS-SFX](https://github.com/GHOSTBUSTERS-SFX)** — as Pony Town's *SCARED FRENCH SOLDIER*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@glorypizza](https://github.com/glorypizza)** — as Pony Town's *PIZZA GUY*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
