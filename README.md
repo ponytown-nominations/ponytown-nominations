@@ -147,7 +147,7 @@ _____
 
 💠 **[@vegazzombie](https://github.com/vegazzombie)** — as Pony Town's *LEON SCOTT KENNEDY*
 
-💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
+💠 **[@Deivydoestutorialz33](https://github.com/Deivydoestutorialz33)** — as Pony Town's *SIXTY4GAMER*
 
 💠 **[@username0](https://github.com/username0)** — as Pony Town's *character*
 
