@@ -164,3 +164,7 @@ _____
 💠 **[@BEASTGUEST](https://github.com/BEASTGUEST)** — as Pony Town's *JOHN DOE*
 
 💠 **[@Dollsection](https://github.com/Dollsection)** — as Pony Town's *VEERONICA*
+
+💠 **[@coypisopilled](https://github.com/coypisopilled)** — as Pony Town's *COY PISO*
+
+💠 **[@chxerryval](https://github.com/chxerryval)** — as Pony Town's *JANE DOE*
