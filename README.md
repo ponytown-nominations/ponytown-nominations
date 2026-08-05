@@ -176,3 +176,7 @@ _____
 💠 **[@ariadnesThreadspinner](https://github.com/ariadnesThreadspinner)** — as Pony Town's *ELIZAVETA HÉDERVÁRY*
 
 💠 **[@ajthepeach](https://github.com/ajthepeach)** — as Pony Town's *ARTHUR KIRKLAND*
+
+💠 **[@mirrorgem](https://github.com/mirrorgem)** — as Pony Town's *LOTTIE MATTHEWS*
+
+💠 **[@WoundedRibbons](https://github.com/WoundedRibbons)** — as Pony Town's *KAVEH*
