@@ -172,3 +172,7 @@ _____
 💠 **[@tomatosu](https://github.com/tomatosu)** — as Pony Town's *SASUKE UCHIHA*
 
 💠 **[@fuwafuransu](https://github.com/fuwafuransu)** — as Pony Town's *FRANCIS BONNEFOY*
+
+💠 **[@ariadnesThreadspinner](https://github.com/ariadnesThreadspinner)** — as Pony Town's *ELIZAVETA HÉDERVÁRY*
+
+💠 **[@ajthepeach](https://github.com/ajthepeach)** — as Pony Town's *ARTHUR KIRKLAND*
