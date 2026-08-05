@@ -170,3 +170,5 @@ _____
 💠 **[@chxerryval](https://github.com/chxerryval)** — as Pony Town's *JANE DOE*
 
 💠 **[@tomatosu](https://github.com/tomatosu)** — as Pony Town's *SASUKE UCHIHA*
+
+💠 **[@fuwafuransu](https://github.com/fuwafuransu)** — as Pony Town's *FRANCIS BONNEFOY*
