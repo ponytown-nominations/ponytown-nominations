@@ -180,3 +180,7 @@ _____
 💠 **[@mirrorgem](https://github.com/mirrorgem)** — as Pony Town's *LOTTIE MATTHEWS*
 
 💠 **[@WoundedRibbons](https://github.com/WoundedRibbons)** — as Pony Town's *KAVEH*
+
+💠 **[@cryptidist](https://github.com/cryptidist)** — as Pony Town's *ZIM*
+
+💠 **[@yaasuhiro](https://github.com/yaasuhiro)** — as Pony Town's *YASUHIRO HAGAKURE*
