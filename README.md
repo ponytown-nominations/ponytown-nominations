@@ -139,6 +139,8 @@ _____
 
 💠 **[@realdustsans](https://github.com/realdustsans)** — as Pony Town's *DUST SANS*
 
+💠 **[@lostyaoi](https://github.com/lostyaoi)** — as Pony Town's *COSMO*
+
 💠 **[@Heart0fGold](https://github.com/Heart0fGold)** — as Pony Town's *KARL*
 
 💠 **[@GHOSTBUSTERS-SFX](https://github.com/GHOSTBUSTERS-SFX)** — as Pony Town's *SCARED FRENCH SOLDIER*
