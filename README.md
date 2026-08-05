@@ -186,3 +186,7 @@ _____
 💠 **[@cryptidist](https://github.com/cryptidist)** — as Pony Town's *ZIM*
 
 💠 **[@yaasuhiro](https://github.com/yaasuhiro)** — as Pony Town's *YASUHIRO HAGAKURE*
+
+💠 **[@B3RDLY](https://github.com/B3RDLY)** — as Pony Town's *BERDLY*
+
+💠 **[@theultimatekohamster](https://github.com/theultimatekohamster)** — as Pony Town's *GOODTIMEWITHSCAR*
