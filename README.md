@@ -189,4 +189,4 @@ _____
 
 💠 **[@B3RDLY](https://github.com/B3RDLY)** — as Pony Town's *BERDLY*
 
-💠 **[@theultimatekohamster](https://github.com/theultimatekohamster)** — as Pony Town's *GOODTIMEWITHSCAR*
+💠 **[@theultimatekohamster](https://github.com/theultimatekohamster)** — as Pony Town's *GOODTIMESWITHSCAR*
