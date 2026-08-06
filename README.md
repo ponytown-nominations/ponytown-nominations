@@ -203,3 +203,5 @@ _____
 💠 **[@CherrieJam](https://github.com/CherrieJam)** — as Pony Town's *WINDBLADE*
 
 💠 **[@eversleeping-town](https://github.com/eversleeping-town)** — as Pony Town's *ADA WONG*
+
+💠 **[@Firebrandd](https://github.com/Firebrandd)** — as Pony Town's *FIREBRAND*
