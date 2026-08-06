@@ -196,8 +196,6 @@ _____
 
 💠 **[@2099s](https://github.com/2099s)** — as Pony Town's *MIGUEL O'HARA*
 
-💠 **[@ClovereFields](https://github.com/ClovereFields)** — as Pony Town's *EVILFIES*
-
 💠 **[@vampireyaoi](https://github.com/vampireyaoi)** — as Pony Town's *SUNDAY*
 
 💠 **[@CherrieJam](https://github.com/CherrieJam)** — as Pony Town's *WINDBLADE*
