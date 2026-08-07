@@ -6,7 +6,7 @@
 <br>
 <br>
 _updates frequently_
-> Will reply on ata if a character is already taken or if you want to change characters.
+> Will reply on ata if a character is already taken or if you want to change characters or if i forgot to add you.
 > Go check the strawpage to see if a character you wanna nominate someone or yourself as is taken!
 > If not added you may have made it hard to figure out what the character/characters are.
 _____
