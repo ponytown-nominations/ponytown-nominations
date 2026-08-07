@@ -203,3 +203,11 @@ _____
 💠 **[@eversleeping-town](https://github.com/eversleeping-town)** — as Pony Town's *ADA WONG*
 
 💠 **[@Firebrandd](https://github.com/Firebrandd)** — as Pony Town's *FIREBRAND*
+
+💠 **[@martycorn](https://github.com/martycorn)** — as Pony Town's *VAMPIRE COOKIE*
+
+💠 **[@junerpea](https://github.com/junerpea)** — as Pony Town's *NEWT*
+
+💠 **[@dol9hinn](https://github.com/dol9hinn)** — as Pony Town's *DOL9HIN*
+
+💠 **[@DELUXEB0MB](https://github.com/DELUXEB0MB)** — as Pony Town's *MAN FROM THE SHADOW*
