@@ -214,7 +214,7 @@ _____
 
 💠 **[@ibwuprofen](https://github.com/ibwuprofen)** — as Pony Town's *JEAN GREY*
 
-💠 **[@asabeam](https://github.com/asabeam)** — as Pony Town's *ASA MIT AKA*
+💠 **[@asabeam](https://github.com/asabeam)** — as Pony Town's *ASA MITAKA*
 
 💠 **[@disorderlyfashion](https://github.com/disorderlyfashion)** — as Pony Town's *SQUIRRELFLIGHT*
 
