@@ -213,3 +213,9 @@ _____
 💠 **[@DELUXEB0MB](https://github.com/DELUXEB0MB)** — as Pony Town's *MAN FROM THE SHADOW*
 
 💠 **[@ibwuprofen](https://github.com/ibwuprofen)** — as Pony Town's *JEAN GREY*
+
+💠 **[@asabeam](https://github.com/asabeam)** — as Pony Town's *ASA MIT AKA*
+
+💠 **[@disorderlyfashion](https://github.com/disorderlyfashion)** — as Pony Town's *SQUIRRELFLIGHT*
+
+💠 **[@FeelThatDread](https://github.com/FeelThatDread)** — as Pony Town's *LORD X*
