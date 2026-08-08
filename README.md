@@ -8,10 +8,9 @@
 _updates PAUSED_
 my mental health randomly dropped and it's made it harder to update this.
 > Will reply on ata if a character is already taken or if you want to change characters or if i forgot to add you.
-> > Go check the strawpage to see if a character you wanna nominate someone or yourself as is taken!
-<br>
-If not added you may have made it hard to figure out what the character/characters are.
-_____
+> Go check the strawpage to see if a character you wanna nominate someone or yourself as is taken!
+> If not added you may have made it hard to figure out what the character/characters are.
+___________
 💠 **[@UICTIM](https://github.com/Uictim)** — as Pony Town's *TDL*
 
 💠 **[SONNELLINOENTHUSIAST](https://github.com/SONNELLINOENTHUSIAST)** — as Pony Town's *MAFIOSO*
