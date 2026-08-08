@@ -1,11 +1,12 @@
 88# 💠 *WE WANT YOU TO NOMINATE TODAY!* 💠
 > Again, do not nominate someone who is **_problematic._**
-> If you wanna be removed, send me a whisper on Pony Town or head to my main github, which is below, and ask on that ata!
+> > If you wanna be removed, send me a whisper on Pony Town or head to my main github, which is below, and ask on that ata!
 
 💠 **[@Matt-1337](https://github.com/Matt-1337)** — MAIN GITHUB
 <br>
 <br>
-_updates slowed_
+_updates PAUSED_
+my mental health randomly dropped and it's made it harder to update this.
 > Will reply on ata if a character is already taken or if you want to change characters or if i forgot to add you.
 > Go check the strawpage to see if a character you wanna nominate someone or yourself as is taken!
 > If not added you may have made it hard to figure out what the character/characters are.
