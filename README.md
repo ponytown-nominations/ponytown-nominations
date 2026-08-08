@@ -5,7 +5,7 @@
 💠 **[@Matt-1337](https://github.com/Matt-1337)** — MAIN GITHUB
 <br>
 <br>
-_updates frequently_
+_updates slowed_
 > Will reply on ata if a character is already taken or if you want to change characters or if i forgot to add you.
 > Go check the strawpage to see if a character you wanna nominate someone or yourself as is taken!
 > If not added you may have made it hard to figure out what the character/characters are.
