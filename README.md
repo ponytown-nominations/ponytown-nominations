@@ -1,4 +1,4 @@
-88# 💠 *WE WANT YOU TO NOMINATE TODAY!* 💠
+# 💠 *WE WANT YOU TO NOMINATE TODAY!* 💠
 > Again, do not nominate someone who is **_problematic._**
 > > If you wanna be removed, send me a whisper on Pony Town or head to my main github, which is below, and ask on that ata!
 
