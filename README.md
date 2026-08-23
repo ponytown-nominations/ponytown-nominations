@@ -1,6 +1,7 @@
 # 💠 *WE WANT YOU TO NOMINATE TODAY!* 💠
 > Again, do not nominate someone who is **_problematic._**
 > > If you wanna be removed, send me a whisper on Pony Town or head to my main github, which is below, and ask on that ata!
+> > friends may ask on discord.
 
 💠 **[@Matt-1337](https://github.com/Matt-1337)** — MAIN GITHUB
 <br>
@@ -11,7 +12,6 @@ my mental health randomly dropped and it's made it harder to update this.
 > Go check the strawpage to see if a character you wanna nominate someone or yourself as is taken!
 > If not added you may have made it hard to figure out what the character/characters are.
 ___________
-💠 **[@UICTIM](https://github.com/Uictim)** — as Pony Town's *TDL*
 
 💠 **[SONNELLINOENTHUSIAST](https://github.com/SONNELLINOENTHUSIAST)** — as Pony Town's *MAFIOSO*
 
