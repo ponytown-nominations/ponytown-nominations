@@ -53,7 +53,7 @@ ___________
 
 💠 **[@puphacker](https://github.com/puphacker)** — as Pony Town's *007N7*
 
-💠 **[@andreslopper](https://github.com/andreslopper)** — as Pony Town's *KATSANE TETO*
+💠 **[@andreslopper](https://github.com/andreslopper)** — as Pony Town's *OPERA*
 
 💠 **[@lostcxuse](https://github.com/lostcxuse)** — as Pony Town's *NEZOSHOKI*
 
@@ -97,7 +97,7 @@ ___________
 
 💠 **[@qnakin](https://github.com/qnakin)** — as Pony Town's *ANAKIN SKYWALKER*
 
-💠 **[@orchestrafuI](https://github.com/orchestrafuI)** — as Pony Town's *ARTFUL*
+💠 **[@orchestrafuI](https://github.com/orchestrafuI)** — as Pony Town's *MALBEAR*
 
 💠 **[@givemeonelastdance](https://github.com/givemeonelastdance)** — as Pony Town's *EDDIE BROCK*
 
@@ -105,7 +105,7 @@ ___________
 
 💠 **[@tychobrahed](https://github.com/tychobrahed)** — as Pony Town's *TYCHO*
 
-💠 **[@kiwiconicc](https://github.com/kiwiconicc)** — as Pony Town's *SAIKI KUSUO*
+💠 **[@kiwiconiccc](https://github.com/kiwiconiccc)** — as Pony Town's *SAIKI KUSUO*
 
 💠 **[@oncology-angel](https://github.com/oncology-angel)** — as Pony Town's *ALEXANDER HAMILTON*
 
