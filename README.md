@@ -145,7 +145,7 @@ ___________
 
 💠 **[@Heart0fGold](https://github.com/Heart0fGold)** — as Pony Town's *KARL*
 
-💠 **[@GHOSTBUSTERS-SFX](https://github.com/GHOSTBUSTERS-SFX)** — as Pony Town's *SCARED FRENCH SOLDIER*
+💠 **[@Ham-milton](https://github.com/Ham-milton)** — as Pony Town's *SCARED FRENCH SOLDIER*
 
 💠 **[@glorypizza](https://github.com/glorypizza)** — as Pony Town's *PIZZA GUY*
 
