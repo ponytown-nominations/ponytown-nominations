@@ -7,7 +7,7 @@
 <br>
 <br>
 _updates PAUSED_
-my mental health randomly dropped and it's made it harder to update this. only updating character changes and usernames.
+I'm better now but I might not update due to some interest loss. this is bound to change.
 > Will reply on ata if a character is already taken or if you want to change characters or if i forgot to add you.
 > Go check the strawpage to see if a character you wanna nominate someone or yourself as is taken!
 > If not added you may have made it hard to figure out what the character/characters are.
