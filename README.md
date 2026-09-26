@@ -19,11 +19,15 @@ I'm better now but I might not update due to some interest loss. this is bound t
   <summary>Information</summary>
    <br>
    <p align="center"> Will reply on ata if a character is already taken or if you want to change characters or if i forgot to add you.
+<br>
 Go check the strawpage to see if a character you wanna nominate someone or yourself as is taken!
+<br>
 If not added you may have made it hard to figure out what the character/characters are.
  </details>
-___________
-
+____________________________________________________________________________________
+<br>
+<br>
+   
 💠 **[SONNELLINOENTHUSIAST](https://github.com/SONNELLINOENTHUSIAST)** — as Pony Town's *MAFIOSO*
 
 💠 **[@itrap-2245](https://github.com/itrap-2245)** — as Pony Town's *ITRAPPED*
