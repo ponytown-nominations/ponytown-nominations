@@ -193,7 +193,7 @@ ___________
 
 💠 **[@theultimatekohamster](https://github.com/theultimatekohamster)** — as Pony Town's *GOODTIMESWITHSCAR*
 
-💠 **[@hood-net]https://github.com/hood-net)** — as Pony Town's *JASON TODD*
+💠 **[@hood-net](https://github.com/hood-net)** — as Pony Town's *JASON TODD*
 
 💠 **[@2099s](https://github.com/2099s)** — as Pony Town's *MIGUEL O'HARA*
 
