@@ -55,7 +55,7 @@ ___________
 
 💠 **[@andreslopper](https://github.com/andreslopper)** — as Pony Town's *OPERA*
 
-💠 **[@lostcxuse](https://github.com/lostcxuse)** — as Pony Town's *NEZOSHOKI*
+💠 **[@lostcxuse](https://github.com/lostcxuse)** — as Pony Town's *BOOMIE*
 
 💠 **[@VArtfultrust](https://github.com/VArtfultrust)** — as Pony Town's *PARROTX2*
 
@@ -193,7 +193,7 @@ ___________
 
 💠 **[@theultimatekohamster](https://github.com/theultimatekohamster)** — as Pony Town's *GOODTIMESWITHSCAR*
 
-💠 **[@sebvsene](https://github.com/sebvsene)** — as Pony Town's *JASON TODD*
+💠 **[@hood-net]https://github.com/hood-net)** — as Pony Town's *JASON TODD*
 
 💠 **[@2099s](https://github.com/2099s)** — as Pony Town's *MIGUEL O'HARA*
 
