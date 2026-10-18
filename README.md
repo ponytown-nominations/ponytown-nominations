@@ -22,7 +22,7 @@ I'm better now but I might not update due to some interest loss. this is bound t
 <br>
 Go check the strawpage to see if a character you wanna nominate someone or yourself as is taken!
 <br>
-If not added you may have made it hard to figure out what the character/characters are. or I recognized you as problematic or you had information of you being problematic.
+If not added you may have made it hard to figure out what the character/characters are or I recognized you as problematic or you had information on you being someone problematic.
  </details>
 ____________________________________________________________________________________
 <br>
