@@ -88,7 +88,7 @@ ________________________________________________________________________________
 
 💠 **[@Bigguykoi](https://github.com/Bigguykoi)** — as Pony Town's *TONY STARK*
 
-💠 **[@travisrapidd](https://github.com/travisrapidd)** — as Pony Town's *TRAVIS RAPID*
+💠 **[@travissamuelrapid](https://github.com/travissamuelrapid)** — as Pony Town's *TRAVIS RAPID*
 
 💠 **[@mutiIator](https://github.com/mutiIator)** — as Pony Town's *POSTMAN*
 
