@@ -34,7 +34,7 @@ ________________________________________________________________________________
 
 💠 **[@killwaree](https://github.com/killwaree)** — as Pony Town's *DOCTOR STRANGE*
 
-💠 **[@Gamblersi](https://github.com/Gamblersi)** — as Pony Town's *CHANCE*
+💠 **[@Coinsflips](https://github.com/Coinsflips)** — as Pony Town's *CHANCE*
 
 💠 **[@puppytreat](https://github.com/puppytreat)** — as Pony Town's *SLASHER*
 
