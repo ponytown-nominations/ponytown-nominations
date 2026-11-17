@@ -9,7 +9,7 @@
 <p align="center">
   updates PAUSED.
 <br>
-I'm better now but I might not update due to some interest loss. this is bound to change.
+I'm very 50/50 this may make it harder to even get back on this. might not update due to a lot of interest loss. this is very small to change now.
 <br>
   still gonna change users and characters.
 <br>
@@ -22,7 +22,7 @@ I'm better now but I might not update due to some interest loss. this is bound t
 <br>
 Go check the strawpage to see if a character you wanna nominate someone or yourself as is taken!
 <br>
-If not added you may have made it hard to figure out what the character/characters are or I recognized you as problematic or you had information on you being someone problematic.
+If not added you may have made it hard to figure out what the character/characters are or I recognized you as problematic or you had information on you being someone problematic. I don't do two people on one character.
  </details>
 ____________________________________________________________________________________
 <br>
