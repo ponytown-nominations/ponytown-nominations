@@ -30,7 +30,7 @@ ________________________________________________________________________________
    
 💠 **[SONNELLINOENTHUSIAST](https://github.com/SONNELLINOENTHUSIAST)** — as Pony Town's *MAFIOSO*
 
-💠 **[@itrap-2245](https://github.com/itrap-2245)** — as Pony Town's *ITRAPPED*
+💠 **[@paledove](https://github.com/paledove)** — as Pony Town's *ITRAPPED*
 
 💠 **[@killwaree](https://github.com/killwaree)** — as Pony Town's *DOCTOR STRANGE*
 
